@@ -1,4 +1,4 @@
-Chapter 8: Nurturing Relationships: Strategies for Effective Communication and Collaboration with Clients
+Strategies for Effective Communication and Collaboration with Clients
 =========================================================================================================
 
 Nurturing relationships with clients is an essential component of success in sales. In this chapter, we will discuss strategies for effective communication and collaboration with clients.

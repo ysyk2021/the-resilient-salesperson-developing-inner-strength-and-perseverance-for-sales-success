@@ -1,4 +1,4 @@
-Chapter 8: Nurturing Relationships: Techniques for Building and Maintaining Strong Relationships
+Techniques for Building and Maintaining Strong Relationships
 ================================================================================================
 
 Building and maintaining strong relationships with clients is essential for success in sales. In this chapter, we will discuss techniques for building and maintaining strong relationships.

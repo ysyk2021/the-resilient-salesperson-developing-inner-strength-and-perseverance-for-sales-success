@@ -1,4 +1,4 @@
-Chapter 2: Understanding Resilience: Common Misconceptions about Resilience
+Common Misconceptions about Resilience
 ===========================================================================
 
 In this chapter, we'll explore common misconceptions about resilience. By dispelling these myths, we can gain a clearer understanding of what resilience is and how to cultivate it.

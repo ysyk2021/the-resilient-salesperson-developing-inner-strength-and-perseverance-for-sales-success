@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Importance of resilience in sales](chapter-1-1.md)
   - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Understanding Resilience](chapter-2.md)
@@ -36,8 +35,5 @@
   - [Importance of collaboration in sales](chapter-9-1.md)
   - [Strategies for effective collaboration with colleagues and team members](chapter-9-2.md)
   - [Examples of successful collaborations in sales](chapter-9-3.md)
-- [Chapter 10: Conclusion](chapter-10.md)
-  - [Summary of key points](chapter-10-1.md)
-  - [Final thoughts on developing inner strength and perseverance for sales success](chapter-10-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

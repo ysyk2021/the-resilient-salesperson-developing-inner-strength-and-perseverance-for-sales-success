@@ -1,4 +1,4 @@
-Chapter 9: Collaborating with Others: Importance of Collaboration in Sales
+Importance of Collaboration in Sales
 ==========================================================================
 
 Collaboration is a critical component of success in sales. In this chapter, we will explore the importance of collaboration in sales.

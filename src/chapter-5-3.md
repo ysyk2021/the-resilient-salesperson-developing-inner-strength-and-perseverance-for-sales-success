@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Rejection and Failure: Examples of Individuals Who Overcame Rejection and Failure to Achieve Sales Success
+Examples of Individuals Who Overcame Rejection and Failure to Achieve Sales Success
 ================================================================================================================================
 
 Rejection and failure are inevitable in sales. In this chapter, we will explore examples of individuals who overcame rejection and failure to achieve sales success.

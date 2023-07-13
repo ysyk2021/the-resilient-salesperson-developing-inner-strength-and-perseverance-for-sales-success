@@ -1,4 +1,4 @@
-Chapter 4: Developing a Positive Mindset: Importance of a Positive Mindset in Sales
+Importance of a Positive Mindset in Sales
 ===================================================================================
 
 In this chapter, we'll explore the importance of developing a positive mindset in sales. We'll discuss the benefits of a positive mindset, as well as strategies for cultivating positivity.

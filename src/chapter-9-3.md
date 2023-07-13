@@ -1,4 +1,4 @@
-Chapter 9: Collaborating with Others: Examples of Successful Collaborations in Sales
+Examples of Successful Collaborations in Sales
 ====================================================================================
 
 Collaboration is essential for success in sales. When team members work together effectively, they can achieve more than when working independently. In this chapter, we will discuss examples of successful collaborations in sales.

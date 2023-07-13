@@ -1,4 +1,4 @@
-Chapter 7: Developing Perseverance: Techniques for Developing Perseverance
+Techniques for Developing Perseverance
 ==========================================================================
 
 Perseverance is an essential quality for success in sales. In this chapter, we will discuss techniques for developing perseverance.

@@ -1,4 +1,4 @@
-Chapter 6: Managing Change and Uncertainty: Techniques for Managing Change and Uncertainty in Sales
+Techniques for Managing Change and Uncertainty in Sales
 ===================================================================================================
 
 In sales, change and uncertainty are inevitable. The ability to manage these challenges is essential for success. In this chapter, we will discuss techniques for managing change and uncertainty in sales.

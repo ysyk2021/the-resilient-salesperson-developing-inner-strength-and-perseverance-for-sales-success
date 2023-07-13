@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Rejection and Failure: Techniques for Overcoming Rejection and Failure in Sales
+Techniques for Overcoming Rejection and Failure in Sales
 =====================================================================================================
 
 In this chapter, we will explore techniques for overcoming rejection and failure in sales. We will examine how salespeople can develop resilience and maintain motivation even in the face of rejection and setbacks.

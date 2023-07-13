@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Rejection and Failure: Strategies for Maintaining Motivation and Confidence
+Strategies for Maintaining Motivation and Confidence
 =================================================================================================
 
 Rejection and failure are common in sales, and it can be challenging to maintain motivation and confidence when faced with setbacks. In this chapter, we will discuss strategies for maintaining motivation and confidence when overcoming rejection and failure in sales.

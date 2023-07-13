@@ -1,4 +1,4 @@
-Chapter 2: Understanding Resilience: Definition of Resilience
+Definition of Resilience
 =============================================================
 
 In this chapter, we'll explore the concept of resilience and its importance in sales. We'll define resilience and discuss why it's critical for success in a challenging and competitive field.

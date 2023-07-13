@@ -1,4 +1,4 @@
-Chapter 6: Managing Change and Uncertainty: Examples of Individuals who Successfully Managed Change and Uncertainty in Sales
+Examples of Individuals who Successfully Managed Change and Uncertainty in Sales
 ============================================================================================================================
 
 Managing change and uncertainty is an essential skill for success in sales. In this chapter, we will discuss examples of individuals who successfully managed change and uncertainty in sales.

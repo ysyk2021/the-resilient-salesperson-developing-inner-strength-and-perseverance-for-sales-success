@@ -1,4 +1,4 @@
-Chapter 2: Understanding Resilience: Benefits of Developing Resilience in Sales
+Benefits of Developing Resilience in Sales
 ===============================================================================
 
 In this chapter, we'll explore the benefits of developing resilience in sales. We'll discuss how cultivating resilience can help you overcome challenges and achieve success in a challenging and competitive field.

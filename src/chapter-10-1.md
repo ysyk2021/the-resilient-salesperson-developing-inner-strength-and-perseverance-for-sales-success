@@ -1,4 +1,4 @@
-Chapter 10: Conclusion: Summary of Key Points
+Summary of Key Points
 =============================================
 
 In this book, we have discussed the importance of resilience and perseverance in sales. We have provided strategies and techniques for developing inner strength and overcoming challenges. In this final chapter, we summarize the key points from the book.

@@ -1,4 +1,4 @@
-Chapter 7: Developing Perseverance: Importance of Perseverance in Sales
+Importance of Perseverance in Sales
 =======================================================================
 
 Perseverance is a critical quality for success in sales. In this chapter, we will explore the importance of perseverance in sales.

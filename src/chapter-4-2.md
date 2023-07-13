@@ -1,4 +1,4 @@
-Chapter 4: Developing a Positive Mindset: Techniques for Developing a Positive Mindset
+Techniques for Developing a Positive Mindset
 ======================================================================================
 
 In this chapter, we'll explore techniques for developing a positive mindset in sales. We'll discuss strategies for shifting your mindset towards positivity and maintaining that mindset over time.

@@ -1,4 +1,4 @@
-Chapter 3: Building Inner Strength for Sales Success: Techniques for Building Inner Strength
+Techniques for Building Inner Strength
 ============================================================================================
 
 In this chapter, we will explore techniques for building inner strength and resilience in sales. By using these techniques, salespeople can develop the mental and emotional fortitude they need to overcome challenges and achieve success in a competitive sales environment.

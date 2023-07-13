@@ -1,4 +1,4 @@
-Chapter 9: Collaborating with Others: Strategies for Effective Collaboration with Colleagues and Team Members
+Strategies for Effective Collaboration with Colleagues and Team Members
 =============================================================================================================
 
 Collaboration is a critical component of success in any sales organization. When team members work together effectively, they can achieve more than when working independently. In this chapter, we will discuss strategies for effective collaboration with colleagues and team members.

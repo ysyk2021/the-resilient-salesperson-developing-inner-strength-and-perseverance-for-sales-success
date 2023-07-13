@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Importance of Resilience in Sales
+Importance of Resilience in Sales
 ==========================================================
 
 In this chapter, we will introduce the importance of resilience in sales. We will examine how developing resilience can help salespeople overcome challenges and achieve success in a competitive sales environment.
