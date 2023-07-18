@@ -10,7 +10,6 @@ Through case studies of successful individuals who have developed strong inner s
 
 By using the techniques and strategies outlined in this book, salespeople can build the mental and emotional fortitude they need to thrive in sales and other areas of life. Whether you're new to sales or a seasoned professional, "The Resilient Salesperson" is an invaluable resource that will help you achieve your goals and reach new heights of success.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
