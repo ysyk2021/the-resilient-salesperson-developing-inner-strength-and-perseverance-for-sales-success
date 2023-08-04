@@ -2,7 +2,6 @@
 
 - [Chapter 1: Introduction](README.md)
   - [Importance of resilience in sales](chapter-1-1.md)
-  - [Overview of the book's contents](chapter-1-2.md)
 - [Chapter 2: Understanding Resilience](chapter-2.md)
   - [Definition of resilience](chapter-2-1.md)
   - [Common misconceptions about resilience](chapter-2-2.md)
