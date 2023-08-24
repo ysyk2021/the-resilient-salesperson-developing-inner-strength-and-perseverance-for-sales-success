@@ -1,5 +1,3 @@
-Chapter 3: Building Inner Strength for Sales Success
-====================================================
 
 In this chapter, we will explore techniques and strategies for building inner strength in sales. We will examine how developing inner strength can help salespeople overcome challenges and achieve success.
 

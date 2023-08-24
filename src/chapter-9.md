@@ -1,5 +1,3 @@
-Chapter 9: Collaborating with Others
-====================================
 
 Collaboration is essential for success in sales. In this chapter, we will discuss the importance of collaboration in sales, strategies for effective collaboration with colleagues and team members, and examples of successful collaborations in sales.
 

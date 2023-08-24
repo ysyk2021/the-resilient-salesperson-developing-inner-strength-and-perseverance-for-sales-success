@@ -1,5 +1,3 @@
-Common Misconceptions About Resilience
-===============================================
 
 Resilience is a highly valued attribute in the sales profession, but it is often misunderstood. In this chapter, we debunk common misconceptions about resilience and provide clarity on what it truly means to be resilient in the context of sales.
 

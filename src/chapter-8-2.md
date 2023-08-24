@@ -1,5 +1,3 @@
-Techniques for Building and Maintaining Strong Relationships
-=====================================================================
 
 Building and maintaining strong relationships is a key aspect of sales success. In this chapter, we will explore effective techniques that resilient salespersons can utilize to build and nurture strong relationships with clients and prospects.
 

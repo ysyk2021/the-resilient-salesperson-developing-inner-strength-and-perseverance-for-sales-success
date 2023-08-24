@@ -1,5 +1,3 @@
-Importance of Resilience in Sales
-==========================================
 
 In this chapter, we explore the critical role of resilience in the sales profession and how developing inner strength and perseverance can lead to sales success.
 

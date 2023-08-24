@@ -1,5 +1,3 @@
-Chapter 8: Nurturing Relationships
-==================================
 
 Importance of Nurturing Relationships in Sales
 ----------------------------------------------

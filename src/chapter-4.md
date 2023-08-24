@@ -1,5 +1,3 @@
-Chapter 4: Developing a Positive Mindset
-========================================
 
 Importance of a Positive Mindset in Sales
 -----------------------------------------

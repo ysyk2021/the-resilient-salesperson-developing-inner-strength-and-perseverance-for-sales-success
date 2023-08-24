@@ -1,5 +1,3 @@
-Chapter 5: Overcoming Rejection and Failure
-===========================================
 
 Techniques for Overcoming Rejection and Failure in Sales
 --------------------------------------------------------
