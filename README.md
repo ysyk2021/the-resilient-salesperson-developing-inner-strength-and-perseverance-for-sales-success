@@ -1,3 +1,6 @@
+# The Resilient Salesperson: Developing Inner Strength and Perseverance for Sales Success
+
+Book Link: [https://zhengpublishing.com/the-resilient-salesperson-developing-inner-strength-and-perseverance-for-sales-success/](https://zhengpublishing.com/the-resilient-salesperson-developing-inner-strength-and-perseverance-for-sales-success/)
 
 The world of sales is both challenging and rewarding. Salespeople face numerous obstacles, from tough competition to rejection and setbacks. To succeed in this competitive field, it's essential for sales professionals to develop inner strength and resilience.
 
